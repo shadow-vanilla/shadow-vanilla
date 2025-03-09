@@ -1,3 +1,3 @@
 I WILL DIE ON THE SHADOWNILLA HILL
 
-![Image](https://github.com/user-attachments/assets/c47d9353-37d4-48cc-b77a-4eb2a8708ae4)
+![Image](https://github.com/user-attachments/assets/ec5ae9d7-25bd-4178-bd7b-e14932a98e98)
